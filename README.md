@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning B.Tech CSE (Hons) Cybersecurity as honors collobration with QuickHeal.
 - 💞️ I’m looking to collaborate on 
 - 📫 You can reach me throught:<br>
-      LInkedin:- https://www.linkedin.com/in/manish-keshri-009715184/<br>
+      LInkedin:- https://www.linkedin.com/in/manish-keshri-webtech//<br>
       Instagram:- https://www.instagram.com/manish6470k<br>
       Email:- keshrim121@gmail.com
 
