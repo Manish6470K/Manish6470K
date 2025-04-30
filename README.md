@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Manish Keshri
 - 👀 I’m interested in Web Development.
-- Currently Working With Reliance Industries - Jio #Assistant Manager
+- 🏢 Currently Working With Reliance Industries - Jio #Assistant Manager
 - 🌱 I’m B.Tech CSE (Hons) Cybersecurity as honors collobration with QuickHeal @2023-PassOut.
 - 💞️ I’m looking to collaborate on 
 - 📫 You can reach me throught:<br>
